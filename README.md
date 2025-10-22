@@ -1,4 +1,4 @@
-<img width="500" height="500" alt="Gemini_Generated_Image_8k9uyo8k9uyo8k9u" src="https://github.com/user-attachments/assets/1204f366-4d8a-41a8-907d-ed05f3b93b79" /> <br>
+<img width="500" height="500" alt="Gemini_Generated_Image_c913bjc913bjc913" src="https://github.com/user-attachments/assets/45cfaa58-eb5f-49af-928c-5bf888eb3953" />
 
 
 📚 Canlı Ders Platformu
